@@ -1,13 +1,5 @@
-# SCHEDULEME
-
-## What is SCHEDULEME?
-
-SCHEDULEME will be providing a simpler way to navigate through the availability of your group members and figure out when you can plan your meetings. People are more l
-
-
-
-
----
+# SAMANTHA MORRIS
+## 135073M@ACADIAU.CA
 
 # EDUCATION
 
